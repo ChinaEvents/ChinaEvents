@@ -21,3 +21,5 @@
 ![](6.jpg)
 
 - [辽宁6岁虐童案](https://www.google.com/search?q=%E8%BE%BD%E5%AE%816%E5%B2%81%E8%99%90%E7%AB%A5%E6%A1%88+%E7%BB%93%E6%9E%9C&newwindow=1&sxsrf=ALeKk01bhH_tIcwQrqCInDCawPsIpuzZ0w%3A1624371446050&source=hp&ei=9fDRYM6WPJaE-gSOo4eABw&iflsig=AINFCbYAAAAAYNH_BgoqJxS8gMN0_Sa_XiI1lCdTrEiM&oq=%E8%BE%BD%E5%AE%816%E5%B2%81%E8%99%90%E7%AB%A5%E6%A1%88+%E7%BB%93%E6%9E%9C&gs_lcp=Cgdnd3Mtd2l6EAM6BwgjEOoCECdQtQtYtQtg6xJoAXAAeACAAYwGiAGMBpIBAzYtMZgBAKABAqABAaoBB2d3cy13aXqwAQo&sclient=gws-wiz&ved=0ahUKEwiO5ZWYt6vxAhUWgp4KHY7RAXAQ4dUDCAk&uact=5): 又是无头案，结果何年马月才能出来？
+
+![](fuck.png)
